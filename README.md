@@ -1,4 +1,3 @@
-[I am a Web, Graphic Designer, Developer & a Programmer](https://pbs.twimg.com/profile_banners/1313362907766255616/1620034330/1080x360)
 
 ### Hi there 👋, my name is Shaik Mohammad Naseer
 
